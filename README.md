@@ -40,9 +40,9 @@ Porque **privacidade é poder**, e o futuro da segurança digital depende de jov
 Estou aprendendo de forma independente, com muito foco e paixão.  
 Se você acredita no meu potencial e quer **me patrocinar** com cursos, mentoria, livros ou até collabs, fala comigo! 🙌
 
-📧 Email: joshuagraciano.dev@gmail.com  
-💬 Instagram: [@mestredocodigo](https://instagram.com/mestredocodigo)  
-🚀 Carteira Cripto (USDT, BTC ou ETH): *[coloca tua wallet aqui]*
+📧 Email: joshuacosta120@gmail.com  
+💬 Instagram: joshua_dacosta_  
+🚀 Carteira Cripto (USDT, BTC ou ETH): Brevemente!
 
 ---
 
